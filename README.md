@@ -15,6 +15,16 @@ Relief Japan
 ![enter image description here](https://github.com/bigBackfisch/knuspriger-Test/blob/main/japan.jpg?raw=true)
 
 **#Übung**
+
+
+Relief Brandenburg [**#Übung **
+
+
+
+
+![enter image description here](https://github.com/bigBackfisch/knuspriger-Test/blob/main/Screenshot%202026-11-05%20152124.png?raw=true)
+
+**#Übung**
 **##Beispiel**
 
 Berlin Kinderarmut [**#Übung **
